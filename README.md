@@ -1,1 +1,1 @@
-Here, you will resources that can be helpful
+Here, you will find resources that can be helpful!
